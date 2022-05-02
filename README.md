@@ -1,6 +1,6 @@
-# <img src="https://c.tenor.com/-169fSymeTgAAAAi/anime-girl.gif" width="100"> ZAHWAZEIN'S PROFILE  
+# <img src="https://c.tenor.com/-169fSymeTgAAAAi/anime-girl.gif" width="100"> OnX Dz'S PROFILE  
 
-I'm Zein
+I'm OnX Dz
 <br>
 I'm passionated about nothing. thx
 <br>
